@@ -6,7 +6,7 @@ Quis aproveitar o máximo de tempo até o prazo
 final justamente para entregar o melhor 
 projeto possível.
 
-link para o vídeo = 
+link para o vídeo = https://youtu.be/ewYt2w3EvVs
 
 
 
